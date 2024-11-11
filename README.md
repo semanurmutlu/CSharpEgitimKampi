@@ -1,1 +1,0 @@
-C# EĞİTİM KAMPI PROJELERİ
